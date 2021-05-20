@@ -1,0 +1,1 @@
+The monkey and the crocodile are very mad at each other. The monkey employes the tiger to injure the crocodile very severely.
