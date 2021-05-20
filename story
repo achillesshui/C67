@@ -1,1 +1,1 @@
-The monkey and the crocodile are very mad at each other. The monkey employes the tiger to injure the crocodile very severely.
+The monkey and the crocodile are very mad at each other. The monkey employes the tiger to injure the crocodile very severely. The monkey got sick the next day because the crocdile had put poison in the monkey's apple juice.
